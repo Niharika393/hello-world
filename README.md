@@ -5,7 +5,7 @@ readme-edits
 Hey earthmates!
 
 It's me! Niharika. I love coding and making cool stuff.
-Also, I belive in the power of universe and my mind.
+and I'm too lazy to type anything more
 
 
 master
